@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **gaurav.nitkkr.72@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/13hGMh5NiEq9M294uWGnuS2VcRCyIB0xM/view?usp=drive_link](https://drive.google.com/file/d/13hGMh5NiEq9M294uWGnuS2VcRCyIB0xM/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1nPICXgHgK1tQyTQ9tFERXKjVP_VmM53o/view?usp=drive_link](https://drive.google.com/file/d/1nPICXgHgK1tQyTQ9tFERXKjVP_VmM53o/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
